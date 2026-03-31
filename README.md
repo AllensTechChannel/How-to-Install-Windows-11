@@ -1,1 +1,1 @@
-# How-to-Install-Windows-11
+# How to Install Windows 11
